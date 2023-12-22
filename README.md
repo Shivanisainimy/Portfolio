@@ -20,4 +20,4 @@ I am currently seeking opportunities to apply my knowledge and skills in a profe
 * Email id- shivanisaini2173@gmail.com
 * Github- https://github.com/Shivanisainimy
 * LinkedIn- https://www.linkedin.com/in/shivani-saini-116103234/
-* Portfolio Link- https://github.com/Taru1506/PORTFOLIO
+* Portfolio Link- https://github.com/Shivanisainimy/Portfolio
